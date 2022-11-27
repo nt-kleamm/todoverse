@@ -1,0 +1,1 @@
+Hi, it's a brand new project with completly new ideas, i hope it will help me to learn and pratice my knowlendge and it will be usefull project for others to use 
